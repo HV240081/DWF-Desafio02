@@ -4,7 +4,9 @@
 3. Mario Antonio Pacheco Guerrero PG240099
 4. Alejandra Marisol Hernández Monterrosa HM240103
 
+Enlace de video directo: https://udbedu-my.sharepoint.com/:v:/g/personal/hm240103_alumno_udb_edu_sv/EWn0yK6SbWRHnOZ2umDi9hMBFkEuCzw3ytyNf2n3-fC07Q?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=rh1yqn
 
+Enlace donde se guardo el video: https://udbedu-my.sharepoint.com/personal/hm240103_alumno_udb_edu_sv/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Fhm240103%5Falumno%5Fudb%5Fedu%5Fsv%2FDocuments%2FDWF%20Desafio%202%20%2D%20Video%20explicativo%20sobre%20el%20desafio%20pr%C3%A1ctico&ga=1
 
 
 
